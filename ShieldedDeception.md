@@ -1,14 +1,20 @@
 # Shielded Deception
 
+<div>
+  <img src="https://media3.giphy.com/media/VIMtJxmP5uVBC/giphy.gif?cid=ecf05e4795cz89vzwefq1nqky2285zmq2ws4p1nldztuopzi&rid=giphy.gif&ct=g" width=1000>
+</div>
+
+***
+
 She squeezes her doll tightly, clutching to the lonely memory. She sits on the old cushioned seat beneath her second story bedroom window, searching the rain-filled darkness. For them.
 
-How come I can’t see them?
+_How come I can’t see them?_
 
 Confusion and hurt fill her mind as lightning crawls through the sky. The intense flashing beams through the window. She looks over her shoulder and watches as the light throws her shadow against the crooked closet doors and tattered wallpaper before she turns back to the window.
 
 The rain intensifies.
 
-Why did they take her?
+_Why did they take her?_
 
 Her bedroom door flies open with a loud creak and swings into the wall. She jumps as the shock fills her with fear and confusion.
 
@@ -22,7 +28,7 @@ Clara trembles.
 
 They sit in silence for a moment, her stepmother glaring at her. Clara fiddles with her doll’s soft arm, trying to deflect the horrible worthlessness that her stepmother’s voice often caused her.
 
-I wish mommy was here.
+_I wish mommy was here._
 
 She looks up at her stepmom with her head down in a foolish attempt to stare back in defiance.
 
@@ -56,7 +62,7 @@ He looks over at the spot where her reading sofa used to be. His smile shrinks a
 
 Profanities from the kitchen pull him back to the moment. He scrambles up from his chair, rushing into the kitchen to see what the complaint is about. As he turns the corner, he sees his wife staring at the overflowing trash can.
 
-Oh… 
+_Oh… _
 
 “WHERE IS THAT LAZY WASTE OF LIFE?” Her voice seems loud enough to shatter the foundation beneath them. “I swear to… I… if I have to tell her one more time to clean up after herself, she is going to need stitches!”
 
@@ -134,7 +140,7 @@ Cliff is too preoccupied to look over. He’s staring into the gorgeous blue eye
 
 She looks like an angel out there in the midday sunlight. Her white-blonde hair flowing gracefully in the summer breeze. She’s wearing a colorful new dress that she picked out just for this occasion, her slight curves filling it out perfectly. 
 
-“Come on, Cliff! Join me!”
+**“Come on, Cliff! Join me!”**
 
 He smiles and jumps up. She could get him to do anything… he couldn’t resist. He runs out to meet her. 
 
@@ -158,7 +164,7 @@ He tries again to escape her grasp, but it’s impossible. When did she gain suc
 
 The creature yells in his face in a deep, demonic voice. 
 
-“Come on, Cliff! Join me!”
+### “Come on, Cliff! Join me!”
 
 ***
 
@@ -168,7 +174,7 @@ Bewildered and heaving painful breaths, he huddles on the ground and begs for th
 
 He looks at the photograph in his hand and notices the floor behind it—clean. The trash is gone and the bag tied, ready to be taken out to the can. 
 
-What? 
+_What? _
 
 He stands to his feet, confused and light-headed. With his head spinning, he can’t focus. 
 
@@ -184,7 +190,7 @@ Hesitant to leave and worried that someone has been in the house, he closes the 
 
 “I’m sorry, little light. Could you take the bag out real quick? Agatha needs me to—”
 
-“CLIFF!”
+### “CLIFF!”
 
 He apologizes once again as he hurries upstairs to tend to her animal problem.
 
@@ -207,7 +213,7 @@ Dragging the bag behind her, she walks up to the gate in the chain link fence le
 
 The grim alley between the buildings used to be one of the scariest places. She used to get nightmares every night from the things that she couldn’t see, the things that made noise in the dark and in the rain. And then Agatha moved in. Now the alley doesn’t even frighten her.
 
-She’s so mean. Mommy was never mean like her.
+_She’s so mean. Mommy was never mean like her._
 
 There was a flat stone on the way to the garbage with some chalk scribbles on it. The colorful linework that once decorated the otherwise boring stone was washing away from the rainwater. Her dolly’s favorite spot. 
 
@@ -219,13 +225,13 @@ Clara drops the bag and looks up. An open tin can rolls away from a trash can la
 
 Stunned, she tries to be still and watches the alley, like when they watch hummingbirds in the park. Afraid of what she might see, she refuses to move.
 
-But… she was curious.
+_But…_ she was curious.
 
 After a moment of nothing happening, a tiny yellow globe began to glow. Another globe of similar size appeared next to it. They were floating motionless at the other end of the alley at the corner — the same alley that led to Absin’s house.
 
 Clara stares at them, wondering what they are and why they made her so uncomfortable, like eyes that were staring back at her. 
 
-Then they moved… together.
+Then they moved… _together._
 
 She was sure they were moving. No, not just moving… they were getting bigger. Though she was stricken with fear at the odd sight, she couldn’t help herself but to keep staring, watching as the globes grew bigger and bigger. They seemed to be moving up and getting bigger.
 
@@ -235,7 +241,7 @@ And she sees it.
 
 The outline of it is hard to distinguish from the dark and rainy backdrop, but she was looking for it. A large, thin shape with two glowing globes in the center of an odd-shaped mass. It was coming towards her!
 
-It’s them!
+_It’s them!_
 
 Her body began to tremble but she couldn’t let this chance slip away. She spins around and grabs her flashlight from the stone where it was resting and shines the light where she saw the figure.
 
@@ -259,7 +265,7 @@ Instead of heading for the door, she steps closer to it. She inches forward, clu
 
 Startled, she freezes where she stands. The sound of the rain envelops her just as the fear once did. The figure’s voice was so clear, though. Is it in her head? Her instincts tell her to run, but she can’t. She won’t— not when she’s so close.
 
-I have to know where they took mommy… 
+_I have to know where they took mommy… _
 
 She hears her mother’s calm voice in her head telling her to be strong. ‘Strength, little lady’, she would tell her. Clara could feel her mother’s presence, her very touch on her skin. It was almost as if she were right there with her. 
 
@@ -277,7 +283,7 @@ It slowly reaches out to grab her hand.
 
 Clara flicks her wrist and aims the flashlight’s beam up towards the shadow. Her eyes bulge as she nearly drops it.
 
-Mommy?!
+### _Mommy?!_
 
 Relief washes over her as she stands before a translucent figure of her very own mother. Her mother bends down and gently lifts Clara’s chin. In those eyes that once brought her fear and curiosity, Clara now saw the familiar love and compassion that had so long ago been a part of her life. She did the only thing that made sense and leaned in to give her a hug.
 
@@ -285,7 +291,7 @@ A loud crash causes her to jump.
 
 A kettle full of hot soup had come crashing through the window and was now splattered all over the yard. Agatha had seen what happened from the window.
 
-Uh oh…  
+_Uh oh… _ 
 
 “Get away from her, now!” Agatha screams with the most terrifying look on her face that she’d ever seen. Clara looked at her mother and back again at the open window at the enraged Agatha, who was barreling through the kitchen to reach the door.
 
@@ -299,7 +305,7 @@ Agatha’s body was changing drastically as she watched in horror. She turns bac
 
 As they were running towards the park across the way, the beam from her flashlight crosses her mother as it swings back and forth. The dark creature was present whenever there was no direct light, replaced by her real mommy form when the light hit her.
 
-What is it about mommy that makes her scary in the dark?
+_What is it about mommy that makes her scary in the dark?_
 
 She didn’t care. All that mattered was that she was with her now.
 
@@ -321,21 +327,21 @@ Up ahead, she sees an opening in the fence.
 
 Clara moves her feet as fast as she can, thankful to be with Mommy once again. But she was still so curious. She couldn’t figure out why she was so different now. 
 
-What was wrong with her?
+_What was wrong with her?_
 
 They breach the fence on the edge of the forest, hoping to get away from Agatha. The fence catches her doll and she drops it.
 
-“Mommy, wait! My doll!”
+### “Mommy, wait! My doll!”
 
 “You don’t want it, Clara, trust me,” she says as the doll’s hand slipped through Clara’s grasp. “Please, just leave it!”
 
-“But, mommy!”
+### “But, mommy!”
 
-“Let it go, baby!”
+### “Let it go, baby!”
 
 She did want it. Why would she say such a terrible thing? Did she forget how much she loved that doll? She gives it a last longing look as it dangles on the fence, its red eyes staring back at her.
 
-Wait… they were black before. Weren’t they?
+_Wait… they were black before. Weren’t they?_
 
 On the other side of the fence, an entire group of dark creatures with yellow eyes were waiting for them, all looking like Mommy’s scary form. Clara panics and stops running, not knowing what’s happening. Mommy turns around and grabs her hand once more, flashlight shining on her to reveal her true form.
 
@@ -351,7 +357,7 @@ The Yulozo leap around like starving monkeys. Clara couldn’t help but look thr
 
 When she opened her eyes she could no longer see Agatha. The group of Yulozo leaping around and attacking her were blocking her view. What if they couldn’t stop her? The last glimpse of them before they became hidden in the trees was unclear whether they had succeeded or not. The nearest Yulozo stopped jumping around and was staring at her through the trees with those big yellow eyes. Her flashlight just barely catches a portion of the figure’s face. 
 
-Absin?
+_Absin?_
 
 “It’s not much farther, Clara,” Mommy says. “Hurry!”
 
@@ -393,17 +399,17 @@ She grips her Mommy’s legs and squeezes as tight as she can.
 
 The demon Agatha charges towards them, fire dripping from her mouth and bloody slashes covering her body.
 
-“I’m going to do what I should have done a long time ago!”
+### “I’m going to do what I should have done a long time ago!”
 
 “You will not touch her!” Mommy says. “She belongs with us! And as long as I roam free, you will not gain another!”
 
 “You have no power here, Yulozo!” Agatha says, her footsteps pounding as she draws nearer. “You are merely an echo, insignificant to them and to us! You failed once, and you will fail again!”
 
-“But I won’t!”
+### “But I won’t!”
 
 Clara brightens at the sound of the strong, warm voice cutting through the rain.
 
-Daddy was here!
+_Daddy's here!_
 
 Agatha spins in a fiery blaze as Daddy stumbles towards them while holding his head. 
 
@@ -421,11 +427,13 @@ Mommy stands in front of her, protecting her from Agatha while Daddy defends the
 
 “Stay away from her, Archdemon!” Daddy says as he aims his shotgun at Agatha and fires. The deafening sound makes her cringe. The blow didn’t seem to slow her down as it did the animals when Daddy took her hunting. “No matter how many you use and discard, you’ll never keep her!”
 
-“That poison should have been enough to end you!” Agatha says. “You’ve got fight in you, Cliff!”
+### “That poison should have been enough to end you!” Agatha says. “You’ve got fight in you, Cliff!”
 
-“Nothing will ever come between my family and I!” Daddy says. “Not again!”
+### “Nothing will ever come between my family and I!” Daddy says. “Not again!”
 
-Agatha bellowed in laughter. “You don’t have a choice!” 
+Agatha bellowed in laughter.
+
+### “You don’t have a choice!” 
 
 She lunges forward and grabs the shotgun from Daddy’s hands and turns it around. 
 
@@ -433,7 +441,7 @@ Another loud boom.
 
 Clara shuts her eyes again, fearing the worst. Please save Daddy, please save Daddy, please save Daddy… She opens her eyes and sees Daddy slumped over on his knees. Panic fills her as she tries to break free of Mommy’s grip. 
 
-“Daddy, no!” she screams. “I need to save Daddy!”
+### “Daddy, no!” She screams. “I need to save Daddy!”
 
 “Clara, please!” Mommy says as she turns to look at her. “You must stay with me! This is the only way!”
 
@@ -441,7 +449,7 @@ Clara shuts her eyes again, fearing the worst. Please save Daddy, please save Da
 
 Clara hears another boom and feels the impact. It takes her a moment to realize that Mommy was shot in the chest.
 
-“Mommy!”
+### “Mommy!”
 
 She slumps to the floor, still grasping onto Clara. 
 
@@ -451,7 +459,9 @@ She slumps to the floor, still grasping onto Clara.
 
 She walks up to her and aims the twin barrels of the shotgun at her face.
 
-“CLARA!” Mommy screams through gurgling. 
+### “CLARA!”
+
+Mommy screams through gurgling. 
 
 They were all so close to her now. She hears the train’s abrasive horn and spins around, Mommy, Daddy and Agatha bumping and shoving behind her. 
 
@@ -473,7 +483,7 @@ Clara looks over at Agatha again. She notices that her hands and feet are bound.
 
 After a moment, the silence is broken by the most majestic and mighty voice she has ever heard. A voice that sounded like it came from the throne, but no one was sitting there.
 
-“Yes.”
+### “Yes.”
 
 Agatha growls and sinks through the white marble floor.
 
@@ -499,9 +509,9 @@ The front door opens and a family of three walk in. The mother and father look a
 
 “Isn’t it great?” the father asks their young daughter.
 
-“Yes, I love it daddy!” the girl says with excitement, jumping and clapping her hands together. She runs to the living room and her eyes meet the doll’s.
+“Yes, I love it daddy!” The girl says with excitement, jumping and clapping her hands together. She runs to the living room and her eyes meet the doll’s.
 
-“Look daddy!” she shouts. “A dolly!” 
+### “Look daddy!” she shouts. “A dolly!” 
 
 She runs to it and picks it up, holding it tight, closing her eyes and smiling wide. She was clearly filled with joy. 
 
@@ -509,6 +519,8 @@ She runs to it and picks it up, holding it tight, closing her eyes and smiling w
 
 The doll hangs limp in the girl’s arms. It stares ominously, empty expression on its face— innocent yet powerful, like the Yulozo. A clever ruse, just like every time before this. It always works with the young ones. Always.
 
-Except this time, there will be no flashlights…
+***
+
+_Except this time, there will be no flashlights…_
 
 ***
